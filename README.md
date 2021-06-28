@@ -9,5 +9,10 @@
 - 📧
 - [ ] STUDY HARDER 
 - [X] Study in a reputable educational institution
+- 🥊
+- 😲
+- 🥇
+- 
+- 
 
 
